@@ -1,1 +1,1 @@
-✅ A2Z It HUB Website Project Internship
+✅ A2Z It HUB Internship Project (Website)
